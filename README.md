@@ -1,5 +1,5 @@
 # @Ale7
 
 Alec Wooding\
-Boise, ID, USA\
+United States\
 https://www.alecwooding.com/
